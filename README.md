@@ -11,6 +11,5 @@ Informaçõeszinhas:
 - 😄 Pronomes: ela\dela.
 - ⚡ Adoro gatos.
 -->
-
 Você pode entrar em contato comigo 📫
 00001130746574sp@al.educacao.sp.gov.br
